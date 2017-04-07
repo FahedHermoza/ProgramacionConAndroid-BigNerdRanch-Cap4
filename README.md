@@ -11,4 +11,4 @@ Echa un vistazo a mi blog de desarollo para mas detalles. https://goo.gl/9zCPN3
 
 
 
-Si te gusto dale una estrellita.
+Si te gusto dale una estrellita ★.
